@@ -124,8 +124,8 @@ FOLLOW INSTAGRAM SAYA
 ${instagram}
 
 • TELEGRAM : ${telegram}
-• Youtube : R E U Z
-• WA : 081271699856
+• Youtube : Adit Tya
+• WA : 085774142551
 • Pasang Iklan? Chat Whatsapp.
 
 📺 *IKLAN* : *YOUTUBE REUZ*
